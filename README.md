@@ -1,1 +1,0 @@
-# paragoda.github.io
